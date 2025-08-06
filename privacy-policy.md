@@ -1,6 +1,7 @@
+Privacy Policy
 Effective Date: August 6, 2025
 
-SmartX Solutions we developed the Koty Games app as a free application. This SERVICE is provided by SmartX Solutions at no cost and is intended for use as is.
+SmartX Solutions ("we", "our", "us") developed the Koty Games app as a free application. This SERVICE is provided by SmartX Solutions at no cost and is intended for use as is.
 
 This page informs you of our policies regarding the collection, use, and disclosure of Personal Information when using our Service.
 
